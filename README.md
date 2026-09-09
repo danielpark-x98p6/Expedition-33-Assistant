@@ -1,4 +1,4 @@
-# ⚔️ Expedition-33 Ultimate Assistant | God Mode, Unlimited Mana & One-Hit Kill
+# ⚔️ Expedition-33 Ultimate Assistant | God Mode, Unlimited Mana & One-Hit Kill 
 
 ![Expedition-33 Ultimate Assistant Preview](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTqpTQqkBFFFrNslJHMyVVp-LZKOw17ye9Fuc-5wqpvWw&s=10)
 
